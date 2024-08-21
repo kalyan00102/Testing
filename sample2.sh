@@ -1,1 +1,7 @@
-echo "Okay Okay"
+hai
+erkjerkfbewkbf
+webfhjewfie
+ebfihewgfiewbifewf
+ebfuhewbfiuewfbf
+fbeifbiuef
+bi3bfiubef
